@@ -11,6 +11,7 @@ in the Vancouver and surrounding areas
 * [Golden Age Collectables](http://gacvan.com/)
 * [Sakura Media](http://www.sakuramedia.com/)
 * [Toytards](https://toytards.com/)
+* [Urban Samurai Hobbies](https://www.urbansamuraihobbies.com/)
 
 ## Conferences
 * [Anime Revolution](https://animerevolution.ca/)
