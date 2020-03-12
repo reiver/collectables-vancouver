@@ -7,6 +7,7 @@ in the Vancouver and surrounding areas
 
 ## Stores
 * [Ages Three And Up](https://www.agesthreeandup.ca/)
+* [Comic Land Comics and Toys](http://comiclandstore.com/)
 * [EB Games](https://www.ebgames.ca/)
 * [Golden Age Collectables](http://gacvan.com/)
 * [Sakura Media](http://www.sakuramedia.com/)
