@@ -10,6 +10,7 @@ in the Vancouver and surrounding areas
 * [Comic Land Comics and Toys](http://comiclandstore.com/)
 * [EB Games](https://www.ebgames.ca/)
 * [Golden Age Collectables](http://gacvan.com/)
+* [Imperial Hobbies](https://www.imperialhobbies.ca/)
 * [Sakura Media](http://www.sakuramedia.com/)
 * [Toytards](https://toytards.com/)
 * [Toy Traders](http://www.toytraders.ca/)
