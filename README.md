@@ -12,6 +12,7 @@ in the Vancouver and surrounding areas
 * [Golden Age Collectables](http://gacvan.com/)
 * [Imperial Hobbies](https://www.imperialhobbies.ca/)
 * [Sakura Media](http://www.sakuramedia.com/)
+  * [Metrohobbies](https://metrohobbies.square.site/)
 * [Toytards](https://toytards.com/)
 * [Toy Traders](http://www.toytraders.ca/)
 * [Urban Samurai Hobbies](https://www.urbansamuraihobbies.com/)
